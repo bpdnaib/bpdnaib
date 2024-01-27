@@ -1,4 +1,4 @@
-![]([https://media1.tenor.com/m/nCCTEfgGDF4AAAAC/satosugu-gojo-satoru.gif](https://media1.tenor.com/m/cioOwECuI-4AAAAC/gojo-gojo-satoru.gif))
+![](https://media1.tenor.com/m/cioOwECuI-4AAAAC/gojo-gojo-satoru.gif)
 
 im super cool TRUST. heh..
 + i follow people for fun, if you dont like it THEN BLOCK ME 
