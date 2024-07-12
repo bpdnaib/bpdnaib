@@ -1,6 +1,6 @@
-![](https://media1.tenor.com/m/0ESgNPukLlEAAAAC/persona-persona3.gif)
+![]([https://media1.tenor.com/m/0ESgNPukLlEAAAAC/persona-persona3.gif](https://media1.tenor.com/m/vZWTAM8egX4AAAAd/when-the-hornets-are-marbled-marble-hornets.gif))
 
-im super cool~~ 
+im super cool and cringe on purpose ^w^
 + i follow people for fun, if you dont like it THEN BLOCK ME 
 + dont come on my atabook starting some bullshit over a follow it makes u look goofy
 + #teddiegyat be a lover nawt a hater!! spread PEACE and POSITIVITY! AMEN. gyattebayo!!~
