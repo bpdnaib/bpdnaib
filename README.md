@@ -1,4 +1,4 @@
-![](https://tenor.com/bUklQ.gif)
+![](https://media1.tenor.com/m/vZWTAM8egX4AAAAd/when-the-hornets-are-marbled-marble-hornets.gif)
 
 im super cool and cringe on purpose ^w^
 + i follow people for fun, if you dont like it THEN BLOCK ME 
