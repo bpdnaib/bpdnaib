@@ -1,4 +1,4 @@
-![](https://i.imgur.com/JR3l5fH.mp4)
+![](https://i.pinimg.com/564x/f6/f6/28/f6f62862f9974bc75486b17e2a0a67c0.jpg)
 
 im super cool and cringe on purpose ^w^
 + i follow people for fun, if you dont like it THEN BLOCK ME 
